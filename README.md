@@ -1,2 +1,2 @@
 [iodfhaeiodj
-](https://kennyzchen.github.io/kennychen.github.io/)
+](https://kennyzchen.github.io/page/)
